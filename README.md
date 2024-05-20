@@ -1,1 +1,1 @@
-Players can move the ball by dribbling (bouncing) it while walking or running, passing it to teammates, or shooting it toward the hoop to score field goals worth two or three points.
+The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.

@@ -1,1 +1,1 @@
-The Golden State Warriors set an NBA record for the most wins in a regular season with 73 wins and only 9 losses during the 2015-2016 season.
+Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as an indoor game to keep his students active during the winter months.

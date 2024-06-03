@@ -1,1 +1,1 @@
-Tennis has four major tournaments known as the Grand Slam events: the Australian Open, French Open (Roland Garros), Wimbledon, and US Open.
+Wilt Chamberlain holds numerous NBA records, including scoring 100 points in a single game in 1962, averaging over 50 points per game in a season, and grabbing over 55 rebounds in a game.

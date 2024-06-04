@@ -1,1 +1,1 @@
-Wilt Chamberlain holds numerous NBA records, including scoring 100 points in a single game in 1962, averaging over 50 points per game in a season, and grabbing over 55 rebounds in a game.
+Hakeem Olajuwon is the only player in NBA history to win the NBA MVP, Defensive Player of the Year, and NBA Finals MVP awards in the same season (1993-1994).

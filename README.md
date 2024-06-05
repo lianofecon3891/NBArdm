@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the only player in NBA history to win the NBA MVP, Defensive Player of the Year, and NBA Finals MVP awards in the same season (1993-1994).
+Basketball has had a significant influence on pop culture, inspiring films, music, fashion, and art, with iconic figures like Michael Jordan and LeBron James becoming global cultural icons.

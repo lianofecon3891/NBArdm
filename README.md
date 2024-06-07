@@ -1,1 +1,1 @@
-Basketball has had a significant influence on pop culture, inspiring films, music, fashion, and art, with iconic figures like Michael Jordan and LeBron James becoming global cultural icons.
+The 1992 United States men's basketball team, known as the "Dream Team," is widely considered the greatest basketball team ever assembled, winning the gold medal at the Barcelona Olympics with an average margin of victory of 43.8 points per game.

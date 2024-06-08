@@ -1,1 +1,1 @@
-The 1992 United States men's basketball team, known as the "Dream Team," is widely considered the greatest basketball team ever assembled, winning the gold medal at the Barcelona Olympics with an average margin of victory of 43.8 points per game.
+The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball used as the first basketball.

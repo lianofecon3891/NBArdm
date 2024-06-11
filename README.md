@@ -1,1 +1,1 @@
-Kobe Bryant, also known as the "Black Mamba," scored 81 points in a single game against the Toronto Raptors on January 22, 2006, the second-highest point total in NBA history.
+Tennis has its origins in 12th century France, where it was played by striking a ball with the palm of the hand in a game called "jeu de paume" (game of the palm).

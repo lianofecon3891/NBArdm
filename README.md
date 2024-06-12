@@ -1,1 +1,1 @@
-Tennis has its origins in 12th century France, where it was played by striking a ball with the palm of the hand in a game called "jeu de paume" (game of the palm).
+The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.

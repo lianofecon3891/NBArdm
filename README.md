@@ -1,1 +1,1 @@
-The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.
+The NBA All-Star Weekend, featuring events like the Slam Dunk Contest, Three-Point Contest, and All-Star Game, has become a highly anticipated annual event that attracts fans and celebrities from around the world.

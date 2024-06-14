@@ -1,1 +1,1 @@
-The NBA All-Star Weekend, featuring events like the Slam Dunk Contest, Three-Point Contest, and All-Star Game, has become a highly anticipated annual event that attracts fans and celebrities from around the world.
+A regulation basketball game consists of four quarters, each lasting 12 minutes, with a 15-minute halftime break. Overtime periods are played if the score is tied at the end of regulation.

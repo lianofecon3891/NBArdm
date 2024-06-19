@@ -1,1 +1,1 @@
-Basketball has become a global sport, with leagues and competitions held in countries around the world, including Europe, Asia, South America, and Africa.
+Michael Jordan, widely regarded as one of the greatest basketball players of all time, won six NBA championships with the Chicago Bulls and earned five regular-season MVP awards.

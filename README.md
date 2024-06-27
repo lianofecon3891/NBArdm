@@ -1,1 +1,1 @@
-A regulation basketball game consists of four quarters, each lasting 12 minutes, with a 15-minute halftime break. Overtime periods are played if the score is tied at the end of regulation.
+Wilt Chamberlain holds numerous NBA records, including the most points scored in a single game (100) and the highest single-season scoring average (50.4 points per game).

@@ -1,1 +1,1 @@
-Basketball is one of the most popular and widely played sports in the world, with an estimated 450 million people playing basketball globally.
+The Golden State Warriors set an NBA record for the most wins in a regular season with 73 wins and only 9 losses during the 2015-2016 season, surpassing the previous record of 72-10 set by the Chicago Bulls in 1995-1996.

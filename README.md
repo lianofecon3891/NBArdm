@@ -1,1 +1,1 @@
-The Golden State Warriors set an NBA record for the most wins in a regular season with 73 wins and only 9 losses during the 2015-2016 season, surpassing the previous record of 72-10 set by the Chicago Bulls in 1995-1996.
+Tennis has its origins in 12th century France, where it was played by striking a ball with the palm of the hand in a game called "jeu de paume" (game of the palm).

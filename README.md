@@ -1,1 +1,1 @@
-Tennis has its origins in 12th century France, where it was played by striking a ball with the palm of the hand in a game called "jeu de paume" (game of the palm).
+The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball used as the first basketball.

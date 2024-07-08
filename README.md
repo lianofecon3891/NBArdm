@@ -1,1 +1,1 @@
-The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball used as the first basketball.
+Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as an indoor game to keep his students active during the winter months.

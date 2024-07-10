@@ -1,1 +1,1 @@
-Tennis has its origins in 12th century France, where it was played by striking a ball with the palm of the hand in a game called "jeu de paume" (game of the palm).
+The Boston Celtics hold the record for the most NBA championships, with 17 titles won as of 2022, followed by the Los Angeles Lakers with 17 championships.

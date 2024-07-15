@@ -1,1 +1,1 @@
-Michael Jordan, widely regarded as one of the greatest basketball players of all time, won six NBA championships with the Chicago Bulls and earned five regular-season MVP awards.
+Serena Williams holds the record for the most Grand Slam singles titles in the Open Era, with 23 titles won between 1999 and 2017.

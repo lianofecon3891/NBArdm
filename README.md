@@ -1,1 +1,1 @@
-The game of basketball was initially played with peach baskets as goals, and the first baskets made of metal were introduced in 1893.
+The NBA consists of 30 teams divided into two conferences, the Eastern Conference and the Western Conference, each containing three divisions.

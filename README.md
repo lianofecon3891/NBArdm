@@ -1,1 +1,1 @@
-The NBA consists of 30 teams divided into two conferences, the Eastern Conference and the Western Conference, each containing three divisions.
+The FIBA Basketball World Cup, held every four years, is the premier international basketball tournament, featuring national teams from around the world competing for the championship title.

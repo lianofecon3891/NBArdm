@@ -1,1 +1,1 @@
-The FIBA Basketball World Cup, held every four years, is the premier international basketball tournament, featuring national teams from around the world competing for the championship title.
+The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball thrown into peach baskets serving as goals.
